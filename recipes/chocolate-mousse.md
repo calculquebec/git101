@@ -5,7 +5,7 @@
 - 100 g butter
 - 250 ml heavy cream
 - 15 ml amarula
-- 80 eggs
+- 8 eggs
 
 ## Instructions
 
