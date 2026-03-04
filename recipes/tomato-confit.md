@@ -19,5 +19,4 @@
 6. Add raisins, chopped clementine, and lemon juice.
 7. Simmer for 30 minutes.
 8. Chop nuts and add them.
-8. Chop nuts and add them.
 9. Allow to cool down slightly before canning.
