@@ -5,7 +5,7 @@
 - 100 g de beurre
 - 250 ml de crème
 - 15 ml d’amarula
-- 80 œufs
+- 8 œufs
 
 ## Instructions
 
