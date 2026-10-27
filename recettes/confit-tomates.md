@@ -19,5 +19,4 @@
 6. Ajouter les raisins secs, les morceaux de clémentines et le jus de citron.
 7. Faire mijoter 30 minutes.
 8. Hacher et ajouter les noix.
-8. Hacher et ajouter les noix.
 9. Laisser tiédir puis empoter.
